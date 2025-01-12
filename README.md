@@ -6,6 +6,8 @@ The platform caters to individuals enhancing their skills, recent graduates seek
 
 ![Webpage (1)](https://github.com/user-attachments/assets/d87fbfe5-3298-4dbd-983e-7b9f84cbf603)
 
+![Webpage (4)](https://github.com/user-attachments/assets/e6e7d8aa-08b3-427b-bdc5-75b31a035c7e)
+
 ![Webpage (5)](https://github.com/user-attachments/assets/48427c03-6693-4e44-9b72-ad56b1487ae8)
 
 ![Webpage (6)](https://github.com/user-attachments/assets/45767ba2-c278-470d-9904-1d5cd13d4bf7)
