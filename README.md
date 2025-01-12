@@ -15,3 +15,5 @@ The platform caters to individuals enhancing their skills, recent graduates seek
 ![Webpage (6)](https://github.com/user-attachments/assets/45767ba2-c278-470d-9904-1d5cd13d4bf7)
 
 ![Webpage](https://github.com/user-attachments/assets/173daa68-e62d-4fe2-b8db-b453812c4204)
+
+![Screenshot 2025-01-12 154444](https://github.com/user-attachments/assets/59b220d9-e676-41e5-a67a-7c77f4333eb1)
